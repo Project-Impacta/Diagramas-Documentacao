@@ -1,2 +1,2 @@
-**Link:**https://lucid.app/lucidchart/2cf233cb-f31b-46c1-8683-58e5e85715be/edit?viewport_loc=-1701%2C-1843%2C2513%2C1168%2C0_0&invitationId=inv_4b273886-b052-49e9-8e02-2de47e993227
+**Link:**:https://lucid.app/lucidchart/2cf233cb-f31b-46c1-8683-58e5e85715be/edit?viewport_loc=-1701%2C-1843%2C2513%2C1168%2C0_0&invitationId=inv_4b273886-b052-49e9-8e02-2de47e993227
 ![Captura de tela 2024-06-07 120826](https://github.com/Project-Impacta/Modelo-Banco/assets/114624530/b9625d40-017e-4bde-9249-0393e1dffe83)
